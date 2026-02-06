@@ -1,2 +1,0 @@
-# himrr
-chemistry gia
